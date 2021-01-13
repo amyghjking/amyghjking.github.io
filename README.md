@@ -1,2 +1,2 @@
 # amyghjking.github.io
-hello
+Chewed corn for life
